@@ -19,7 +19,7 @@ Here are some SEO projects I've worked on:
 2. Ahura racing (https://ahuraracing.com/): Its a car racing academy and i have increased the search engine rankings by building High quality backlinks and also did competitor analysis for finding backlinks and content gaps.
 3. Inspire physio care (https://www.inspirephysiocare.com.au/): Its a physiotherapy health care service in Australia and improved the ranking by optimizing the website with seo factors and building high quality backlinks.
 
-Reach out to me on linkedin (https://www.linkedin.com/in/keerthana-meganathan)for any SEO-related inquiries or discussions
+Reach out to me on linkedin (https://www.linkedin.com/in/keerthana-meganathan) for any SEO-related inquiries or discussions
 <!---
 Keerthimega/Keerthimega is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
